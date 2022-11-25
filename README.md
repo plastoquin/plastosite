@@ -3,3 +3,4 @@
 ##### website of plastoquin
 
 とくにいみはない
+れんしゅうみたいなものかも
